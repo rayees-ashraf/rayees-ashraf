@@ -1,5 +1,5 @@
-I am Rayees Ashraf
-I am interested in collaborating  Mathematics with technology to solve the problems that we face in any field of lif
+I am Rayees Ashraf.
+I am interested in collaborating  Mathematics with technology to solve the problems that we face in any field of life.
 I am currently learning Machine Learinig .
 -  💞️ I’m looking to collaborate on ...
 rayeesashraf22@gmail.com
